@@ -1,4 +1,4 @@
-# Sydney Hopson/.Readme
+# Sydney Hopson
 
 > "We should not judge someone's success by the heights they have reached, but by the obstacles they have overcome." 🌟  
 > - Booker T. Washington
